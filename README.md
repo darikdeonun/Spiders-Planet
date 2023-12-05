@@ -1,1 +1,5 @@
-# Spiders-Planet
+# Spiders Planet
+Silk is a strong, flexible protein fiber that spiders produce from spinnerets located on their abdomen. Spiders use silk for a variety of purposes, including building webs, wrapping up prey, and making egg sacs. Spider silk is stronger than steel and is being used in a variety of new applications, such as bulletproof vests and artificial muscles.
+Spiders play an important role in the ecosystem by helping to control insect populations. Without spiders, we would be overrun by pests that could damage crops and spread diseases. Spiders are also important food sources for other animals, such as birds, bats, and lizards.
+Despite their importance, spiders are often feared and misunderstood. Many people are afraid of spiders because of their fangs and venom. However, only a handful of spider species are dangerous to humans. The two most venomous spiders in the United States are the black widow and the brown recluse. These spiders are very shy and will only bite if they feel threatened.
+Get more detail about Spiders here : [spidersplanet.com](https://spidersplanet.com/)
